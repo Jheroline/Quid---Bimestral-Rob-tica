@@ -1,0 +1,1 @@
+En este proyecto hay una propuesta de Foro estuadiantil adaptado a la plataforma que usa la institución Quid, ubicado debajo de la sección 
